@@ -10,10 +10,6 @@ G808 成员签到，目的是让大家熟悉工作流程。任何人不得直接
 
 `ioa`: 加油签到吧！
 
-
-`green_moon`:deep♂dark♂fantasy
-
-???
 `yueyuea`: 加油打工人!
 
 `LJY`: ʕ•ﻌ•ʔ 加油！
@@ -25,3 +21,5 @@ G808 成员签到，目的是让大家熟悉工作流程。任何人不得直接
 `cdjx`: 加油!签!
 
 `xuan`: 全票打飞林浩
+
+`green_moon`:deep♂dark♂fantasy
